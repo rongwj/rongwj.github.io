@@ -1,2 +1,0 @@
-# rongwj.github.io
-Blog
